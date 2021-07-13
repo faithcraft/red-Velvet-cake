@@ -1,6 +1,6 @@
-2 1/2 cups plain flour sifted
-1 tsp baking powder
-1 tsp salt
+* 2 1/2 cups plain flour sifted
+* 1 tsp baking powder
+* 1 tsp salt
 2 tbs cocoa powder
 50 ml red liquid food colouring
 120g Lurpak* Butter, room temperature
